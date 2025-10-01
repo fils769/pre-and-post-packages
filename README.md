@@ -1,0 +1,1 @@
+[Pre and Post Tour Packages](https://docs.google.com/viewer?url=https://raw.githubusercontent.com/fils769/pre-and-post-packages/main/Shield%20DMC%20Pre%20and%20Post%20Tour%20Packages.pdf&embedded=true)
